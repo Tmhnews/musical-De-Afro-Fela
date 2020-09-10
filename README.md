@@ -1,0 +1,2 @@
+# musical-De-Afro-Fela
+From generations to generations African Musician holds a unique and outstanding tune, this tune is originated from the western part, Nigeria to be precised seem to be leader of this music genre. As the year's go things began to change, arm men invaded from the Western world, tutured and manipulated the leaders who started this music genre. Fela, was the name, he grew from the first class home where his mother was the first to own a car, Fela goes to England to pursue a career as a doctor but later switched to music. More to read
